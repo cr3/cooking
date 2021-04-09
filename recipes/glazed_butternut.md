@@ -14,3 +14,7 @@ Remove lid and keep cooking until evaporated and starts browing.
 Serve with:
 
 - parsley chopped
+
+## References
+
+- https://www.youtube.com/watch?v=4esp3I1g2cU

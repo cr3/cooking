@@ -16,4 +16,4 @@ Fry in anti-adhesive pan for ~3 minutes each side.
 
 ## References
 
-* https://www.youtube.com/watch?v=_pKhCtvw82Y
+- https://www.youtube.com/watch?v=_pKhCtvw82Y
