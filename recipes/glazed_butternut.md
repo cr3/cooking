@@ -17,4 +17,4 @@ Serve with:
 
 ## References
 
-- https://www.youtube.com/watch?v=4esp3I1g2cU
+- [Simply Ming with Jacques Pepin - Fish Two Ways (2018)](https://www.youtube.com/watch?v=4esp3I1g2cU)

@@ -16,4 +16,4 @@ Fry in anti-adhesive pan for ~3 minutes each side.
 
 ## References
 
-- https://www.youtube.com/watch?v=_pKhCtvw82Y
+- [Fluffy Buckwheat Pancakes | Gluten-free & Vegan | Easy Breakfast Recipe](https://www.youtube.com/watch?v=_pKhCtvw82Y)
