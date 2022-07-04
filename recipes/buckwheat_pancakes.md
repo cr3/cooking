@@ -5,6 +5,7 @@ Mix in bowl:
 - 1 cup / 170 grams buckwheat flour
 - 1/2 tsp baking soda
 - 1/4 tsp cinnamon
+- pinch salt
 
 Combine in same bowl:
 
