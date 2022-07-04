@@ -1,4 +1,4 @@
-# Veg Top Pestow
+# Veg Top Pesto
 
 - 50g of pine nuts, these are traditional, but if preferred you can use hazelnuts, almonds, pistachios, walnuts, or any other nuts you find lurking in the kitchen cupboards
 - 80g of vegetable tops, you can use all of one, a mixture of some, or add in some soft herbs (like basil or parsley) if you don’t have quite enough
